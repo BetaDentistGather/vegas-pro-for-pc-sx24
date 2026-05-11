@@ -1,4 +1,4 @@
-# 
+# new Vegas Pro for PC | Vegas Pro for Windows Overlay | audio-sync + multi-track-editing offers the most advanced Vegas Pro for PC | Vegas Pro for Windows overlay, with audio-sync
 
 
 
